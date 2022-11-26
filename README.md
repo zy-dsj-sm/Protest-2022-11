@@ -28,7 +28,6 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 ## 上海乌鲁木齐路
 11.26晚
-口号直接喊共产党下台
 
 
 
