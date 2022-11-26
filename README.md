@@ -20,6 +20,7 @@ https://www.rfa.org/mandarin/yataibaodao/huanjing/kw-11152022144656.html
 新疆拥有2500万人口，由于当局对新冠疫情暴发的强硬应对，该地大部分地方已被封控100天以上。
 视频显示从消防水带喷出高压水，但无法喷洒到起火的大楼，这表明由于小区遭到封控，消防车无法更靠近大楼。（不合理的防疫层层加码已经使得消防隐患遍地皆是）
 https://cn.nytimes.com/china/20221126/china-fire/
+https://chinadigitaltimes.net/chinese/690100.html
 
 ## 新疆抗议
 11.24晚 大量新疆居民走上街头
