@@ -33,7 +33,16 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 ## 待整理
 11月25日晚，上海丝庐花语小区
+
 11月25日晚，北京柏林爱乐小区
+
+安徽长丰县阿奎利亚小区
+
+天津天泰路
+
+北京驼房营
+
+
 
 ## 重要信息节点
 李老师不是你老师 https://twitter.com/whyyoutouzhele
