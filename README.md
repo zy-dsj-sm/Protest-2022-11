@@ -25,11 +25,15 @@ https://chinadigitaltimes.net/chinese/690100.html
 ## 新疆抗议
 11.24晚 大量新疆居民走上街头
 
+## 重庆抗议
+11.25
 
 ## 上海乌鲁木齐路
 11.26晚
 
-
+## 待整理
+11月25日晚，上海丝庐花语小区
+11月25日晚，北京柏林爱乐小区
 
 ## 重要信息节点
 李老师不是你老师 https://twitter.com/whyyoutouzhele
