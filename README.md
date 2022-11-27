@@ -57,6 +57,8 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 品葱上的一份整理 https://pincong.rocks/article/id-50691__sort_key-agree_count__sort-DESC
 
+N记日记的整理 https://ngocn2.org/article/2022-11-27-zao-bao/
+
 ## 讨论文章
 （见本仓库的“讨论文章”文件夹）
 
