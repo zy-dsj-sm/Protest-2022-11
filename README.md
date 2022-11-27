@@ -61,6 +61,8 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 海报行动数据库 https://myduty.net/posterops/
 
+全球烛光海报汇总 bit.ly/3F65moc
+
 品葱上的一份整理 https://pincong.rocks/article/id-50691__sort_key-agree_count__sort-DESC
 
 N记日记的整理 https://ngocn2.org/article/2022-11-27-zao-bao/
