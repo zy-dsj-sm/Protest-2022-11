@@ -24,6 +24,8 @@ https://www.rfa.org/mandarin/yataibaodao/huanjing/kw-11152022144656.html
 https://cn.nytimes.com/china/20221126/china-fire/
 https://chinadigitaltimes.net/chinese/690100.html
 
+据官方报导造成10人死亡，9人受伤。https://www.ts.cn/xwzx/shxw/202211/t20221126_10267193.shtml
+
 ### 新疆1124抗议
 11.24晚 大量新疆居民走上街头
 
@@ -53,7 +55,7 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 
 ## 重要信息节点
-李老师不是你老师 https://twitter.com/whyyoutouzhele
+李老师不是你老师 发布有包括上海1126乌鲁木齐路抗议在内抗议事件的大量现场视频 https://twitter.com/whyyoutouzhele
 
 品葱上的一份整理 https://pincong.rocks/article/id-50691__sort_key-agree_count__sort-DESC
 
