@@ -14,7 +14,7 @@ https://cn.nytimes.com/china/20221117/china-covid-protest/
 https://www.rfa.org/mandarin/yataibaodao/huanjing/kw-11152022144656.html
 
 ### 河南郑州 富士康第二波事件
-11.23
+11.22深夜到23号凌晨 为了补充10月底大批工人出走返乡造成的劳动力缺口，河南郑州市的富士康工厂紧急招聘了大批工人。
 
 ### 新疆1124着火事件
 11.24晚 乌鲁木齐市吉祥苑小区15层起火，火势后蔓延至17层，烟气扩散至更高楼层
@@ -56,6 +56,8 @@ https://chinadigitaltimes.net/chinese/690100.html
 李老师不是你老师 https://twitter.com/whyyoutouzhele
 
 品葱上的一份整理 https://pincong.rocks/article/id-50691__sort_key-agree_count__sort-DESC
+
+## 评论
 
 ## 本仓库希望达成的效果
 一份涵盖了国内近期大部分抗议活动的目录，每个抗议活动有简短的介绍（地点、时间、经过、规模、后续等）、相关新闻链接或社交平台信息链接、相关图片和视频。
