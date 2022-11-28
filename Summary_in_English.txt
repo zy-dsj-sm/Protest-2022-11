@@ -1,4 +1,4 @@
-This is a Github repository that contains almost all the videos, photos and links about the huge protests wave in China right now. The README.md is a timeline summary. The materials here are mostly not translated, but may be try using google translate or other similar tools to see for yourselves.
+This is a Github repository that contains information, videos, photos and links about the huge protests wave in China right now. The README.md is a timeline summary. The materials here are mostly not translated, but may be try using google translate or other similar tools to see for yourselves.
 
 This is the biggest wave of protests since the Tank Man in 1989, people of China Mainland finally start to wake up. 
 
