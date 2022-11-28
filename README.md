@@ -69,6 +69,9 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 N记日记的整理 https://ngocn2.org/article/2022-11-27-zao-bao/
 
+白纸WhitePaper-行动日报 https://send.zcyph.cc/download/22d799687fdb8720/#4zuZh--kOikPCuN0mQtfGQ, 
+whitepaperdaily@mstdn.social
+
 ## 讨论文章
 （见本仓库的“讨论文章”文件夹）
 
