@@ -59,7 +59,7 @@ https://chinadigitaltimes.net/chinese/690100.html
 ## 重要信息节点
 李老师不是你老师 发布有包括上海1126乌鲁木齐路抗议在内抗议事件的大量现场视频 https://twitter.com/whyyoutouzhele
 
-民主墙 https://myduty.net/
+民主墙 https://myduty.net/, twitter.com/mydutynet, mydutynet@m.cmx.im  
 
 海报行动数据库 https://myduty.net/posterops/
 
@@ -69,8 +69,8 @@ https://chinadigitaltimes.net/chinese/690100.html
 
 N记日记的整理 https://ngocn2.org/article/2022-11-27-zao-bao/
 
-白纸WhitePaper-行动日报 https://send.zcyph.cc/download/22d799687fdb8720/#4zuZh--kOikPCuN0mQtfGQ, 
-whitepaperdaily@mstdn.social
+白纸WhitePaper-行动日报 whitepaperdaily@mstdn.social https://send.zcyph.cc/download/22d799687fdb8720/#4zuZh--kOikPCuN0mQtfGQ, 
+
 
 ## 讨论文章
 （见本仓库的“讨论文章”文件夹）
