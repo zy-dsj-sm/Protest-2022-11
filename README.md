@@ -68,6 +68,8 @@ https://chinadigitaltimes.net/chinese/690100.html
 ### 南京传媒大学
 11月26日，南京传媒大学学生以“手举白纸”的形式无声抗议，讽刺当局对言论的控制。On November 26, students from Communication University of Nanjing protested silently by "holding up blank paper", satirizing the authorities' control of speech.
 
+很快，“手举白纸”的抗议形式得到了广泛传播。白纸已经成为近期抗议活动的一个象征。
+
 
 ## 重要信息节点
 李老师不是你老师 发布有包括上海1126乌鲁木齐路抗议在内抗议事件的大量现场视频 https://twitter.com/whyyoutouzhele
