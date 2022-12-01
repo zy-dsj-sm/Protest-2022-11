@@ -25,7 +25,7 @@ https://www.rfa.org/mandarin/yataibaodao/huanjing/kw-11152022144656.html
 https://www.zaobao.com.sg/realtime/china/story20221124-1336713
 
 ### 新疆1124火灾事件
-11.24晚 乌鲁木齐市吉祥苑小区15层起火，火势后蔓延至17层，烟气扩散至更高楼层
+11.24晚 乌鲁木齐市吉祥苑小区15层起火，火势后蔓延至17层，烟气扩散至更高楼层。
 据官方媒体报道，火灾因15层一户卧室插线板起火导致。报道称消防员于三个小时后扑灭火情。当局表示死伤者均因吸入有毒烟气被送往医院救治。
 新疆拥有2500万人口，由于当局对新冠疫情暴发的强硬应对，该地大部分地方已被封控100天以上。
 视频显示从消防水带喷出高压水，但无法喷洒到起火的大楼，这表明由于小区遭到封控，消防车无法更靠近大楼。（不合理的防疫层层加码已经使得消防隐患遍地皆是）
@@ -65,7 +65,8 @@ https://chinadigitaltimes.net/chinese/690100.html
 ### 天津抗议
 天津天泰路
 
-
+### 南京传媒大学
+11月26日，南京传媒大学学生以“手举白纸”的形式无声抗议，讽刺当局对言论的控制。On November 26, students from Communication University of Nanjing protested silently by "holding up blank paper", satirizing the authorities' control of speech.
 
 
 ## 重要信息节点
