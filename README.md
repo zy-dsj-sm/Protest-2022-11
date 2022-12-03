@@ -74,7 +74,7 @@ https://chinadigitaltimes.net/chinese/690100.html
 ## 重要信息节点
 李老师不是你老师 发布有包括上海1126乌鲁木齐路抗议在内抗议事件的大量现场视频 https://twitter.com/whyyoutouzhele
 
-民主墙 https://myduty.net/, twitter.com/mydutynet, mydutynet@m.cmx.im  
+民主墙 https://myduty.net/, twitter.com/mydutynet, mydutynet@m.cmx.im, instagram: @citizensdailycn (Chinese) @whatsup_beijing (English)
 
 海报行动数据库 https://myduty.net/posterops/
 
