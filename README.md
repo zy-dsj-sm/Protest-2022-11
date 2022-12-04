@@ -25,7 +25,7 @@ https://cn.nytimes.com/china/20221117/china-covid-protest/
 https://www.rfa.org/mandarin/yataibaodao/huanjing/kw-11152022144656.html
 
 ### 河南郑州 富士康第二波事件
-11月22日深夜到23日凌晨 为了补充10月底大批工人出走返乡造成的劳动力缺口，河南郑州市的富士康工厂紧急招聘了大批工人。
+11月22日深夜到23日凌晨 为了补充10月底大批工人出走返乡造成的劳动力缺口，河南郑州市的富士康工厂紧急招聘了大批工人。然而，
 
 https://www.zaobao.com.sg/realtime/china/story20221124-1336713
 
